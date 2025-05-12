@@ -1,1 +1,0 @@
-# ushimakijuri_parttime_v2_768
